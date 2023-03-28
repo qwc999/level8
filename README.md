@@ -14,3 +14,5 @@
 https://docs.google.com/document/d/1WXdXxx_G5RJDp2rQeBrn6OJDHiiCzGw-/edit  
 Miro  
 https://miro.com/app/board/uXjVPgz81rQ=/  
+Глоссарий  
+https://www.notion.so/Dreams-c97d7b5eda494334866b79295ee49ed5  
